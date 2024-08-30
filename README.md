@@ -22,3 +22,6 @@
 
 참고
 강사님
+
+결과물:
+https://docs.google.com/presentation/d/1kl7RlyhRyZOLzea8EK0FEWxK3wbkAgu20Vy6DCljBOc/edit?usp=sharing
